@@ -1,0 +1,2 @@
+# KingRizz
+THE WAY TO BE GENTIL
